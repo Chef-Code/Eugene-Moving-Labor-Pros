@@ -1,6 +1,6 @@
 #Eugene Moving Labor Pros
 
-Hello Again Eugene, Oregon and all Surrounding Areas. Eugene Moving Labor Pros are Professional Movers with all the know how you expect from a moving company. Our Company Service qualifies as the Following:
+Hello Again Eugene, Oregon and all the Surrounding Areas. Eugene Moving Labor Pros are Professional Movers with all the know how you expect from a moving company. Our Company Service qualifies as the Following:
 
 Pack and loaders provide a specialized labor service for those who want to rent a truck and move themselves but not do all the packing and heavy lifting. Oregon HB 2817 specifies that pack and loaders are exempt from motor carrier regulations if:
 
